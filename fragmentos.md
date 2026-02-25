@@ -80,7 +80,7 @@ Don Juan. Su tonalidad es la fuerza fundamental de la ópera misma.
 Y Don Juan, por ser vida (esto es, fuerza, principio) es absolutamente
 músical.
 
-(p. 136) Como estamos investigación la ópera coo totalidad, luego los
+(p. 136) Como estamos investigación la ópera como totalidad, luego los
 demás personajes son también músicales. Pero son como partes de la
 totalidad que llevan, a pesar de ser partes ésta, a la totalidad misma.\
 Lo central está en todas partes.
