@@ -82,7 +82,7 @@ músical.
 
 (p. 136) Como estamos investigación la ópera como totalidad, luego los
 demás personajes son también músicales. Pero son como partes de la
-totalidad que llevan, a pesar de ser partes ésta, a la totalidad misma.\
+totalidad que llevan, a pesar de ser partes de ésta, a la totalidad misma.\
 Lo central está en todas partes.
 
 
